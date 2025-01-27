@@ -1,1 +1,0 @@
-# To-read-6-students-marks-of-six-subjects-
